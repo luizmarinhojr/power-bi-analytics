@@ -1,3 +1,4 @@
-![Screenshot from 2024-04-27 15-12-19](https://github.com/luizmarinhojr/power-bi-analytics/assets/100722777/a4c6d711-2166-4218-a79e-6798b66ea3cc)
+![Screenshot from 2024-04-27 15-12-19](https://github.com/luizmarinhojr/power-bi-analytics/assets/100722777/5c5de5a1-8492-444f-9393-139db88d30e1)
 <br>
-![Screenshot from 2024-04-27 15-13-20](https://github.com/luizmarinhojr/power-bi-analytics/assets/100722777/c2f31dc8-c50f-4336-aeb3-d451c88abbdd)
+<br>
+![Screenshot from 2024-04-27 15-13-20](https://github.com/luizmarinhojr/power-bi-analytics/assets/100722777/0af3f4e1-ead9-4627-bce8-c7d3b7347f6d)
